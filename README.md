@@ -1,0 +1,2 @@
+# khochuaa
+bai kiem tra
